@@ -1,1 +1,0 @@
-# responsi-ptr2-pedroo
